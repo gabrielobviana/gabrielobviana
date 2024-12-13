@@ -1,4 +1,4 @@
-Hey! Eu sou o Gabriel Viana, prazer em te conhecer. 👋
+Hey! I'm Gabriel Viana, nice to meet you. 👋
 ----  
 Graduated in Business Administration and I was trained professionaly by engineers. I'm from Brazil.
 
